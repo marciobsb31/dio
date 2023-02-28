@@ -1,4 +1,4 @@
-
+RECEITA DE STROFONOFF
 
 INGREDIENTES
 3 peitos de frango cortados em cubos
